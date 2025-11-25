@@ -1,1 +1,0 @@
-# GusClipboard-privacy
